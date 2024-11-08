@@ -1,1 +1,1 @@
-# pensamento
+# Minha pagina de filosofia
